@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Oguzcanakyuz
 * 📫 How to reach me: akyuzoguz34@gmail.com
-* 👨‍💻  Read more about my blogs at "[medium.com/@oguzcanakyuz]
 
 
 ### 📫Connect with me
